@@ -10,3 +10,5 @@ What are the three most important tools/strategies you use for organizing your w
 - Planner
 - Daily schedule 
 - Calendars 
+
+Hi Cecilia How has your day been??
