@@ -12,3 +12,4 @@ What are the three most important tools/strategies you use for organizing your w
 - Calendars 
 
 Hi Cecilia How has your day been??
+Pretty good, it's not freezing out!
